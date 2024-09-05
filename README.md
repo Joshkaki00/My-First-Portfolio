@@ -1,2 +1,2 @@
 # My-First-Portfolio
-This is my first portfolio. Please be kind.
+This is my first portfolio. All of the information will be in the portfolio itself. Please be kind!
